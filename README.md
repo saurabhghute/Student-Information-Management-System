@@ -11,9 +11,9 @@ Access records, view marks, and communicate effortlessly.
 
 <br>
 
-[Youtube Video](https://youtu.be/ol650KwQkgY?si=rKcboqSv3n-e4UbC)
+
 <br><br>
-[LinkedIn](https://www.linkedin.com/in/yogndr/)
+
 
 # About
 
